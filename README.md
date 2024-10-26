@@ -29,10 +29,6 @@ I'm always open to collaborating or discussing new ideas. You can reach me throu
 - [LinkedIn](https://www.linkedin.com/in/vehbiu)  
 - Email: [[me@vehbi.me](mailto:me@vehbi.me)]  
 
-## 🌟 Inspiration
 > “Criticizing and objecting to everything means an attempt to destruction. If you do not like something, try to make something better than it. Being destructive causes ruins, while being constructive brings about prosperity.”
-
-Finding inspiration to do something isn't easy. This quote is one of the reasons why I myself am so invested in computers. I don't like many things, many products I've used are a nausence, however, when I try to create something better myself, it teaches me not only the technology and how it works, but also the perseverence it requires to learn and not give up.
-
 ---  
 Thanks for stopping by! 🚀
